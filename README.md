@@ -111,8 +111,8 @@ I believe in:
 
 ## 📫 Connect With Me
 
-- GitHub: https://github.com/yourusername
-- LinkedIn: https://linkedin.com/in/yourusername
+- GitHub: https://github.com/balajisudarshan
+- LinkedIn: https://in.linkedin.com/in/balaji-sudarshan-reddy-kondreddy-9449a3320
 
 ---
 
